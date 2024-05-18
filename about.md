@@ -4,4 +4,4 @@ title: About
 permalink: /about/
 ---
 
-Yes this is me
+Come at me bro. I will massacre you. 
