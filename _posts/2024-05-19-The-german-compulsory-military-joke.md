@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Germany Mulls Reintroduction of Compulsory Military Service: My Thoughts
+title: 'Germany Mulls Reintroduction of Compulsory Military Service: My Thoughts'
 ---
 
 Since Russia's invasion of Ukraine, Germany has been actively debating the revival of conscription. Many Germans, particularly older generations who are not at risk of frontline service, support the reintroduction of compulsory military service for younger people. These proponents argue that Germany made a mistake by abolishing the draft in 2011, but the current geopolitical climate has prompted a reconsideration of that decision. 
