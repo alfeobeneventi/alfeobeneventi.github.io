@@ -25,4 +25,8 @@ The problem is simple: someone who believes they know everything won't invest ti
 
 Couple this with the Dunning–Kruger effect, where people with limited competence overestimate their abilities, and you've got the ultimate dumbass.
 
+### Nepotism
+My manager, who is married, often flirts and shows favoritism toward a younger female colleague, who is 30 years his junior and in a relationship. His behavior is frustrating, particularly because he seems oblivious to the inappropriateness and futility of his actions. This kind of conduct is not only unprofessional, given his marital status and the fact that he's targeting a subordinate, but also detrimental to the team's morale as it involves favoring less skilled individuals. To cope with this, it's best to minimize effort for the company and focus on personal side projects during work hours.
+
+
 How do I deal with this? I simply avoid contradicting them, as it would be too energy-draining. Instead, I use my energy more productively. For example, I close my office door, put my feet up, and read books or work on personal side projects during work hours. This way, the company pays me while I get to focus on my personal interests and deliver nothing in return.
